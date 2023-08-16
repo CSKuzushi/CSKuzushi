@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CSKuzushi
+- Hi, I’m @CSKuzushi
 - major CS bachelors degree
 - I’m currently learning how to get 5 in GPA
 - i love milk chocolate
